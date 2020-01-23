@@ -2,9 +2,9 @@
 
 I love listening to live, crazy, very loud rock music. A few years ago I got tickets for one of my favorite bands open up at a huge stadium-type venue in Detroit. I was pretty excited about it because I thought I'd get to rock out with thousands of people who shared my love for this band's music.
 
-Does this sound like one of your events? Now that I've seen the pattern, I see this happen at all kinds of meetups. A few passionate people get excited about a big event, then are invariably dissapointed by the result.
-
 We drove out and headed in, and the venue was practically empty. Confused, I saw they were already playing. But the place was empty and these guys were playing their set, but...to a large empty venue, the spirit just wasn't there. The show was mediocre at best.
+
+Does this sound like one of your events? Now that I've seen the pattern, I see this happen at all kinds of meetups. A few passionate people get excited about a big event, then are invariably dissapointed by the result.
 
 I was crushed. Not only did the band I wanted to see play crappy, but in MY scene, the music I listen to, this band is a huge deal, and in trying to capture that cross-over mass crowd, the experience simply sputtered.
 
